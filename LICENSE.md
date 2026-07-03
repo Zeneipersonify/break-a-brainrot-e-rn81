@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for break a brainrot egg is the best break a brainrot egg Script, featuring auto-upgrade and private server access. Safe and powerful
 
 
 
